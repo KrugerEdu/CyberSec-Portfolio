@@ -1,0 +1,1 @@
+O Admin está sempre ali
